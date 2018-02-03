@@ -18,7 +18,7 @@ Adrian Diaz is a writer, producer, and actor for the channel. He financed Amiibo
 
 Friends of the channel that we thank for their contributions include:
 
-Jeremie Carreon - Channel Artwork. Meme Lord. Check out his channel.<br>Serjio Castrellon - Acting and Casting
+Jeremie Carreon - Channel Artwork. Meme Lord. Check out his channel.<br/>Serjio Castrellon - Acting and Casting
 
 If you want to see more from us subscribe or follow us on our online accounts.
 
