@@ -12,11 +12,10 @@ Luis Aguilar is the  video director, lead composer and co-founder of the Who Nap
 
 Who Nappin hosts the very talented actors Ricardo D. and Enrigue Gallardo who co-founded the video collective.
 
-Only here can you find Josh D who is a world class actor and Jared Crisostomo who writes and acts for our channel.
-
-Adrian Diaz is a writer, producer, and actor for the channel. He's produced our <b>second</b> most expensive video Amiiboys.
+Only here can you find Josh D who is a world class actor and Jared Crisostomo who writes and acts for our channel. Adrian Diaz is a writer, producer, and actor for the channel.
 
 Friends of the channel that we thank for their contributions include:
+
 Jeremie Carreon - Channel Artwork. Meme Lord. Check out his channel.
 Serjio Castrellon - Acting and Casting
 
