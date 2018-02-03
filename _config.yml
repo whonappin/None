@@ -22,13 +22,13 @@ footer-links:
   facebook:
   flickr:
   github: 
-  instagram: instagram.com/whonappin
+  instagram: https://www.instagram.com/whonappin/
   linkedin:
   pinterest:
   rss: # just type anything here for a working RSS icon
   twitter: whonappin
   stackoverflow: # your stackoverflow profile, e.g. "users/50476/bart-kiers"
-  youtube: # channel/<your_long_string> or user/<youtube.com/whonappin>
+  youtube: # youtube.com/whonappin
   googleplus: # anything in your profile username that comes after plus.google.com/
 
 
