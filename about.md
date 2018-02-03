@@ -20,9 +20,7 @@ Adrian Diaz is a writer, producer, and actor for the channel. He financed Amiibo
 
 Jeremie "Meme Lord" Carreon - Channel Artwork.<br/>Serjio Castrellon - Acting and Casting
 
-If you want to see more from us subscribe or follow us on our online accounts.
-
-<b>We appreciate your support!</b>
+### <b>We appreciate your support!</b>
 
 ### Contact me
 
