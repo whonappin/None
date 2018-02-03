@@ -22,3 +22,6 @@ Jeremie "Meme Lord" Carreon - Channel Artwork.<br/>Serjio Castrellon - Acting an
 
 ### <b>We appreciate your support!</b>
 
+### Contact me
+
+[luistheprofessional@yahoo.com](mailto:luistheprofessional@yahoo.com)
