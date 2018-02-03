@@ -16,7 +16,7 @@ Only here can you find Josh D who is a world class actor and Jared Crisostomo wh
 
 Adrian Diaz is a writer, producer, and actor for the channel. He financed Amiiboys, our <b>second</b> most expensive video .
 
-Friends of the channel that we thank for their contributions include:
+### Friends of the channel that we thank for their contributions include:
 
 Jeremie "Meme Lord" Carreon - Channel Artwork.<br/>Serjio Castrellon - Acting and Casting
 
