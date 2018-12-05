@@ -1,7 +1,8 @@
 ---
 layout: post
-title: Do I Look Like A Web Developer
+title: Who Nappin Mixtape
 published: true
 ---
 
-This is the official Who Nappin Website.
+http://youtube.com/whonappin
+
