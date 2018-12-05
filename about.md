@@ -20,11 +20,13 @@ Who Nappin hosts the very talented actors Ricardo D. and Enrique Gallardo who co
 
 Only here can you find Josh D who is a world class actor and Jared Crisostomo who writes and acts for our channel. 
 
-Adrian Diaz is a writer, producer, and actor for the channel. He financed Amiiboys, our <b>second</b> most expensive video .
+Adrian Diaz is a writer, producer, and actor for the channel. He financed Amiiboys, our <b>second</b> most expensive video.
+
+Edmunds gets the money!
 
 ### Special Thanks to Friends of the Channel:
 
-Jeremie "Meme Lord" Carreon - Channel Artwork.<br/>Serjio Castrellon - Acting and Casting
+Jeremie <b>"Meme Lord"</b> Carreon - Channel Artwork.<br/>Serjio Castrellon - Acting and Casting
 
 ### <b>We appreciate your support!</b>
 
