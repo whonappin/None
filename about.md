@@ -16,7 +16,7 @@ Who Nappin is a video collective that produces the best short films for the pric
 
 Luis Aguilar is the  video director, lead composer and co-founder of the Who Nappin Channel.
 
-Who Nappin hosts the very talented actors Ricardo D. and Enrique Gallardo who co-founded the video collective.
+Who Nappin hosts the very talented actors Ricardo D and Enrique Gallardo who co-founded the video collective.
 
 Only here can you find Josh D who is a world class actor and Jared Crisostomo who writes and acts for our channel. 
 
